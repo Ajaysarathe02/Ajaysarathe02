@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Web development course, DSA etc.**
 
-- 📫 How to reach me **aysarahe02gmail.com**
+- 📫 How to reach me **ajaysarathe2001.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
